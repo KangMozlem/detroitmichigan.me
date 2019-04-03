@@ -1,1 +1,0 @@
-# detroitmichigan.me
